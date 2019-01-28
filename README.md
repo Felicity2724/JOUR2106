@@ -9,11 +9,12 @@
 * Department: School of communication
 * My interest in my spare time: film :satisfied: , fictions , and music . (welcome to discuss and share. :stuck_out_tongue_winking_eye: ) 
 
+
 ## My personality 
 
 In general, I am an easy-going and out-going person. I may not be an expert in making friends, but I am willing to start conversation and discussion with people around me. 
 
-SO, FELL FREE TO TALK TO ME!!!
+SO, FELL FREE TO TALK TO ME!!! 
 
 Also, I attach great importance to responsibility and hard-work, which can be reflected on my punctuality and devotion to my study. (SO, I am not free rider. :blush: ) 
 
