@@ -18,6 +18,6 @@ SO, FELL FREE TO TALK TO ME!!!
 Also, I attach great importance to responsibility and hard-work, which can be reflected on my punctuality and devotion to my study. (SO, I am not free rider. :blush: ) 
 
 I am curious about anything as long as it’s new to me. I am eager to learn and try.
-take a look:
 
+So, how about this:
 ![Image of Yaktocat](https://c1.staticflickr.com/4/3212/3424614950_67076ab2d3_b.jpg)
