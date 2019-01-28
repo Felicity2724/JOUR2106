@@ -19,6 +19,4 @@ Also, I attach great importance to responsibility and hard-work, which can be re
 
 I am curious about anything as long as it’s new to me. I am eager to learn and try. 
 
-![Image of Yaktocat]
-(https://previews.123rf.com/images/lenaro/lenaro1706/lenaro170600037/80230410-dare-to-try-something-new-quote-lettering-calligraphy-inspiration-graphic-design-typography-element-.jpg)
-
+！【】 （https://previews.123rf.com/images/lenaro/lenaro1706/lenaro170600037/80230410-dare-to-try-something-new-quote-lettering-calligraphy-inspiration-graphic-design-typography-element-.jpg）
