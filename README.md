@@ -20,5 +20,5 @@ Also, I attach great importance to responsibility and hard-work, which can be re
 
 I am curious about anything as long as it’s new to me. I am eager to learn and try.
 
-So, how about this:
+So, how about this:kissing_heart:
 ![Image of Yaktocat](https://c1.staticflickr.com/4/3212/3424614950_67076ab2d3_b.jpg)
