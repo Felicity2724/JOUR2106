@@ -20,4 +20,4 @@ Also, I attach great importance to responsibility and hard-work, which can be re
 I am curious about anything as long as it’s new to me. I am eager to learn and try.
 take a look:
 
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Image of Yaktocat](https://pixabay.com/photo-146834/)
