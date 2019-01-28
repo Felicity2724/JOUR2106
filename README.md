@@ -17,7 +17,7 @@ SO, FELL FREE TO TALK TO ME!!!
 
 Also, I attach great importance to responsibility and hard-work, which can be reflected on my punctuality and devotion to my study. (SO, I am not free rider. :blush: ) 
 
-I am curious about anything as long as it’s new to me. I am eager to learn and try. 
+I am curious about anything as long as it’s new to me. I am eager to learn and try：
 
-![Alt Text]
+！[]
 （ https://cdn.pixabay.com/photo/2013/07/12/13/19/stars-146834_960_720.png ）
