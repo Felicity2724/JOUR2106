@@ -18,7 +18,11 @@ SO, FELL FREE TO TALK TO ME!!!
 
 Also, I attach great importance to responsibility and hard-work, which can be reflected on my punctuality and devotion to my study. I do know that I am not the so-called `talented ones`, but I believe hard-working matters more.
 
-I am curious about anything as long as it’s new to me. I am eager to learn and try.
+I am curious about anything as long as it’s new to me, which motivates me to try and learn. Maybe this quote is too old and boring, it do works:
+> Stay hunger, stay foolish.
+
+### My expectation on this course
+
 
 So, how about this:kissing_heart:
 ![Image of Yaktocat](https://c1.staticflickr.com/4/3212/3424614950_67076ab2d3_b.jpg)
