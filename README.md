@@ -7,7 +7,7 @@
 * Gender: Female
 * Year of school: Year 1
 * Department: School of communication
-* Interest in my spare time: film :satisfied: , fictions , and music . (welcome to discuss and share. :stuck_out_tongue_winking_eye: ) 
+* Interest in my spare time: film :satisfied: , fictions and music . (welcome to discuss and share. :stuck_out_tongue_winking_eye: ) 
 
 
 ## My personality 
