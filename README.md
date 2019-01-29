@@ -16,7 +16,7 @@ In general, I am an easy-going and out-going person.I am willing to start conver
 
 SO, FELL FREE TO TALK TO ME!!! 
 
-Also, I attach great importance to responsibility and hard-work, which can be reflected on my punctuality and devotion to my study. I do know that I am not the so-called 'talented ones', but I believe hard-working matters more.
+Also, I attach great importance to responsibility and hard-work, which can be reflected on my punctuality and devotion to my study. I do know that I am not the so-called `talented ones`, but I believe hard-working matters more.
 
 I am curious about anything as long as it’s new to me. I am eager to learn and try.
 
