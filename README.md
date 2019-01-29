@@ -29,7 +29,7 @@ I know the importance of DATA and this new way of delivering messages and news t
 - environmental issues 
 - the time for TV updata cycle
 
-To have a better learning experience, I expect your help.:grin: :yellow_heart:
+To have a better learning experience, I expect your help.:grin: :heart:
 
 So, how about this:kissing_heart: :
 ![Image of Yaktocat](https://c1.staticflickr.com/4/3212/3424614950_67076ab2d3_b.jpg)
