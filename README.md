@@ -25,9 +25,9 @@ I am curious about anything as long as it’s new to me, which motivates me to t
 I know the importance of DATA and this new way of delivering messages and news to sudiences. And this is my first couse that involves DATA and story-telling. I want to learn the essential skills and form the habit of thinking of DATA, which can help me with my major courses in the following years of school.
 
 #### Interested topics:
-- mobile usage (using time or the purpose of using it.) 
-- environmental issues 
-- the time for TV updata cycle
+- Domestic helpers in Hong Kong
+- ‘Me too’ movement in Hong Kong
+- Child abuse and child education in Hong Kong
 
 To have a better learning experience, I expect your help.:grin: :heart:
 
